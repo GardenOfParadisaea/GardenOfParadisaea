@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=GardenOfParadisaea)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=GardenOfParadisaea&label=Works+of+Art)
 
 <img width="1920" height="1080" alt="1784352571409506064281335382033" src="https://github.com/user-attachments/assets/fb9a1067-fd9c-43af-9b34-016fab2c025c" />
 
