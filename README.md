@@ -1,5 +1,8 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=GardenOfParadisaea)
 
+<img width="1920" height="1080" alt="1784352571409506064281335382033" src="https://github.com/user-attachments/assets/fb9a1067-fd9c-43af-9b34-016fab2c025c" />
+
+
 " sᴏᴍᴇ ᴘᴇᴏᴘʟᴇ ᴛʜɪɴᴋ ɪ ʟɪᴋᴇ ᴛᴏ sᴛɪʀ ᴜᴘ ᴛʀᴏᴜʙʟᴇ, ʙᴜᴛ ᴛʜᴇʏ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ᴡʜᴀᴛ ᴛʜᴇʏ'ʀᴇ ᴛᴀʟᴋɪɴɢ ᴀʙᴏᴜᴛ. "
 ~Kaveh
 
