@@ -1,5 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=GardenOfParadisaea)
 
+" Some people think I like to stir up trouble, but they don't know what they're talking about. "
+~Kaveh
 
 <!--
 **GardenOfParadisaea/GardenOfParadisaea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
