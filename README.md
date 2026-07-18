@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=GardenOfParadisaea)
 
-" Some people think I like to stir up trouble, but they don't know what they're talking about. "
+" sᴏᴍᴇ ᴘᴇᴏᴘʟᴇ ᴛʜɪɴᴋ ɪ ʟɪᴋᴇ ᴛᴏ sᴛɪʀ ᴜᴘ ᴛʀᴏᴜʙʟᴇ, ʙᴜᴛ ᴛʜᴇʏ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ᴡʜᴀᴛ ᴛʜᴇʏ'ʀᴇ ᴛᴀʟᴋɪɴɢ ᴀʙᴏᴜᴛ. "
 ~Kaveh
 
 <!--
