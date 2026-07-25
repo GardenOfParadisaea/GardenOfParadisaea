@@ -9,7 +9,7 @@ RBYI or DNIs???
 
 - When this user is on their Kaveh cosplays, they would never entertain you as ships, so IWEC.
 
-- ^ and please note that this user don't want drama for not liking your favorite ships, just respect it and move on, as this user is very sensitive. This user is a big Kaveh Yumeshipper, just a heads up.
+- ^ and please note that this user don't want drama for not liking your favorite (or certain) ships, just respect it and move on, as this user is very sensitive. This user is a big Kaveh Yumeshipper.
 
 <!--
 **GardenOfParadisaea/GardenOfParadisaea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
