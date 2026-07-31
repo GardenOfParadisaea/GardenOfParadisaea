@@ -5,7 +5,7 @@
 " sᴏᴍᴇ ᴘᴇᴏᴘʟᴇ ᴛʜɪɴᴋ ɪ ʟɪᴋᴇ ᴛᴏ sᴛɪʀ ᴜᴘ ᴛʀᴏᴜʙʟᴇ, ʙᴜᴛ ᴛʜᴇʏ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ᴡʜᴀᴛ ᴛʜᴇʏ'ʀᴇ ᴛᴀʟᴋɪɴɢ ᴀʙᴏᴜᴛ. "
 ~Kaveh
 
-Thanks to [@pt-hall-of-media](https://github.com/pt-hall-of-media) for being PT's Kaveh ♡
+Thanks to [@pt-hall-of-media](https://github.com/pt-hall-of-media) for the title of being PT's Kaveh ♡
 
 RBYI or DNIs???
 
