@@ -9,8 +9,8 @@ Thanks to [@pt-hall-of-media](https://github.com/pt-hall-of-media) for the title
 
 RBYI or DNIs???
 
-- When this user is on their Kaveh cosplays, they would never entertain you as ships, roleplay with you and do ERP with you, so IWEC. This user would only entartain you if the topic is for sillies / whimsical.
+- When this user is on their Kaveh cosplays, they would never entertain you as ships, roleplay with you and do ERP with you, so IWEC especially if we don't know one another personally. This user would only entartain you if the topic or conversation is for sillies / whimsical.
 
 - ^ and please note that this user don't want drama for not liking your favorite (or certain) ships, just respect it and move on, as this user is very sensitive. This user is a big Kaveh Yumeshipper.
 
-- This user like to dress up Kaveh in silly outfits only for fun and would never actually entertain such disgusting roleplays to quench your own delusions for him.
+- This user like to dress up Kaveh in silly outfits only for fun and would never actually entertain such disgusting roleplays to quench your own delusions/deluded thoughts for him.
